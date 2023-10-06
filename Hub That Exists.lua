@@ -1,10 +1,10 @@
-Your mom d0esn't love you
+Your mom doesn't love you
 Your dad left you
-Your grandma h8s you
+Your grandma hates you
 And you're gonna grow up to be Adam Sandler!
 Your mom doesn't love you
-Your dad laft you
-Your grandma h8s you
+Your dad left you
+Your grandma hates you
 And you're gonna grow up to be Adam Sandler!
 How much of a pathetic bag of turd, do you have to be? (Have to be)
 That, that is entirely your life
@@ -14,15 +14,15 @@ So you can join in and say a swear word in Roblox
 I literally can't even play the game (Play the game)
 Oh my god!
 Ha-ha-ha, ha-ha-ha-ha-ha
-Your mom doows't love you
-Your dad l3ft you
-Your grandma h8s you
+  Your mom doesn't love you
+Your dad left you
+Your grandma hates you
 And you're gonna grow up to be Adam Sandler!
 Your mom doesn't love you
 Your dad left you
-Your grandma h8s you
+Your grandma hates you
 And you're gonna grow up to be Adam Sandler (Adam Sandler!)
-And you're gonna grow up to be Adam Sandler!
+  And you're gonna grow up to be Adam Sandler!
 (Adam Sandler!)
 And you're gonna grow up to be Adam Sandler!
 (Adam Sandler, Adam Sandler!)
